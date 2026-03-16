@@ -1,1 +1,1 @@
-Meu nome é Julia, tnho 17 anos e gosto de ler e pintar. 
+Meu nome é Julia, tenho 17 anos e gosto de ler e pintar. 
